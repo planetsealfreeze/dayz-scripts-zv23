@@ -1,4 +1,4 @@
-
+Top DayZ trapaça scripts é o melhor DayZ trapaça scripts com munição ilimitada e mira automática. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
